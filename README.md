@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **itskhushiswork715@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1YVhyYCgCCHtISsXJaCeXS11-LnNoDvgT/view?usp=sharing](https://drive.google.com/file/d/1YVhyYCgCCHtISsXJaCeXS11-LnNoDvgT/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1cwcercPW5nSzczpGFUp3pfIgMM6JxKVk/view?usp=sharing](https://drive.google.com/file/d/1cwcercPW5nSzczpGFUp3pfIgMM6JxKVk/view?usp=sharing)
 
 - ⚡ Fun fact **I think, I am funny**
 
