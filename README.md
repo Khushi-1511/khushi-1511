@@ -13,8 +13,8 @@
 
 - 📫 How to reach me **wadhwakhushi15@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/13b0HJa16QFyreTIToQyXDUbm_Dl7Y-xd/view?usp=sharing]
-(https://drive.google.com/file/d/13b0HJa16QFyreTIToQyXDUbm_Dl7Y-xd/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ca_isSaYaGGx6PSIvIisZIa2ewJOlfXW/view?usp=sharing]
+
 
 - ⚡ Fun fact **I think, I am funny**
 
